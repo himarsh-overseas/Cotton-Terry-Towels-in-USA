@@ -1,4 +1,4 @@
-Cotton Terry Towels in USA – Bulk & Wholesale Supplier | Himarsh Overseas
+<h1>Cotton Terry Towels in USA – Bulk & Wholesale Supplier | Himarsh Overseas </h1>
 
 Are you looking for a reliable supplier of cotton terry towels in the USA? Himarsh Overseas offers premium-quality 100% cotton terry towels designed to meet the requirements of wholesalers, importers, distributors, hotels, resorts, spas and retail businesses across the United States.
 
