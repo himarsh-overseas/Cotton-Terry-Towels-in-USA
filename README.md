@@ -6,7 +6,7 @@ Our cotton terry towels are made using quality cotton yarns and a soft terry loo
 
 Whether you need bulk cotton towels for hotels or wholesale cotton terry towels for distribution and retail, Himarsh Overseas welcomes your business enquiries.
 
-Wholesale Cotton Terry Towels for USA Businesses
+<h2>Wholesale Cotton Terry Towels for USA Businesses</h2>
 
 Himarsh Overseas understands the requirements of businesses looking for dependable cotton towel sourcing solutions. Our cotton terry towel range is suitable for buyers seeking a combination of softness, absorbency, practical performance and quality construction.
 
@@ -41,7 +41,7 @@ Commercial distributors and retailers
 
 Businesses purchasing towels in bulk can discuss suitable GSM, dimensions, colours and packaging requirements with our team.
 
-Wholesale Cotton Bath Towels, Hand Towels and More
+<h2>Wholesale Cotton Bath Towels, Hand Towels and More</h2>
 
 Different businesses require different types of towels depending on their customers and applications. Himarsh Overseas offers cotton terry towel options in multiple sizes to accommodate various requirements.
 
@@ -49,7 +49,7 @@ Our product range can include bath towels, hand towels, face towels and other co
 
 Buyers can discuss their preferred dimensions, colour combinations and packaging requirements to identify suitable products for their wholesale or commercial requirements.
 
-Why Choose Himarsh Overseas as Your Cotton Towel Supplier?
+<h3>Why Choose Himarsh Overseas as Your Cotton Towel Supplier?</h3>
 
 Choosing the right wholesale cotton towel supplier is important for maintaining product quality and customer satisfaction.
 
